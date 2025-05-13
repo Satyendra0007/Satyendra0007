@@ -1,5 +1,5 @@
 # 💫 About Me:
-🔭🌱I’m currently learning and  pursuing MCA at Noida International University
+🌱 I’m currently learning and  pursuing MCA at Noida International University
 
 
 ## 🌐 Socials:
